@@ -1,6 +1,7 @@
 # Play slots online for real money
 
-[![](http://i.ibb.co/hR2qzTk/casino.png)](http://playandclickcasinos.com/)
+[![](http://viagrausca.com/mobile.jpg)](http://playandclickcasinos.com/)
+
 
 Online casino from the Top 10 rating for playing for real money with a withdrawal. Start playing slot machines and slots from your phone at the official casino.
 
